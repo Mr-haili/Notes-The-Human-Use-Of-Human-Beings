@@ -5,3 +5,5 @@
 劳苦倦极，疾痛惨怛
 
 行有不得，反求诸己
+
+We are not stuff that abides, but patterns that perpetuate themselves
